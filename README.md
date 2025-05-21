@@ -1,3 +1,3 @@
 # GITHUB_TUTORIAL
 ## Chris esteve aqui
-## Manoel, o safado escroto!
+## Manoel, o safado escroto!!
